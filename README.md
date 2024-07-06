@@ -1,2 +1,3 @@
 # Placeholder
-**This project will be uploaded soon**
+**Please email me at assharif@ucsc.edu to get access to the project**
+**Recruiters Only**
